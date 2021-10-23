@@ -1,1 +1,1 @@
-https://dovga.com/uploads/game/3860.swf
+https://mydomain.com/downloads/document.pdf
